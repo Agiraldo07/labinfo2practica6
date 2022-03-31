@@ -1,0 +1,1 @@
+# labinfo2practica6
